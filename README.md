@@ -42,7 +42,7 @@ At Homify, I delivered content that blended **creativity, marketing strategy, an
 
 📧 **Sample Work:**  
 *"Week 4: Tattoos and Blood Donation – What You Need to Know"*  
-[Read the full email here ➝](TattooCampaign_Email_June2023.md)
+[Read the full email here ➝](files/TattooCampaign_Email_June2023.md)
 
 ## Stride Radio – Radio Presenter & Voice Over Artist (March 2019 – September 2020)
 
@@ -103,7 +103,7 @@ I wrote practical DIY guides for Homify, helping readers engage with creative pr
 
 **Sample DIY Articles:**  
 - [How to Make a Hand Fan – 8 DIY Tutorial Guides](https://www.homify.co.uk/diy/16711/how-to-make-a-hand-fan-8-diy-tutorial-guides)  
-- [25 Simplest DIY Step-by-Step Guide on How to Make Sea Glass](https://www.homify.co.uk/diy/22563/25-simplest-step-by-step-guide-on-how-to-make-a-sea-glass)
+- [25 Simplest DIY Step-by-Step Guide on How to Make Sea Glass](https://www.homify.co.uk/diy/22563/25-simplest-diy-step-by-step-guide-on-how-to-make-a-sea-glass)
 
 ---
 
@@ -218,4 +218,4 @@ I also write creatively, producing short stories and poetry. This demonstrates v
 I’m always open to exciting opportunities, collaborations, or just a chat about communications, writing, and marketing. Let’s connect!
 
 - **Email:** [roseegbuejeh@gmail.com](mailto:roseegbuejeh@gmail.com)  
-- **LinkedIn:** [https://www.linkedin.com/in/egbuejeh-rose-198613209/](https://www.linkedin.com/in/egbuejeh-rose-198613209/)
+- **LinkedIn:** [https://www.linkedin.com/in/egbuejeh-rose-198613209/](https://www.linkedin.com/in/egbuejeh-rose-198613209/)  
